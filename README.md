@@ -1,7 +1,8 @@
 # Assignment #3
 
-**Target date:** Thursday, October 10 by 5.15pm
-**Cutoff date:** Thursday, October 24 by 5.15pm
+**Target date:** Thursday, October 31 by 5.15pm - on Halloween day!
+
+**Cutoff date:** Thursday, November 14 by 5.15pm
 
 ## Topics covered
 
